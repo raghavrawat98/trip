@@ -1,11 +1,13 @@
 [5Night6Day](https://www.indianholiday.com/tours-of-india/auli-tour-package-delhi.html)
 
-![[Pasted image 20231124015919.png]]
+![image](https://github.com/raghavrawat98/trip/assets/49871652/6bd638f6-4983-4201-a3bc-dab51bc99ca8)
+
 
 Ghar se Haridwar hote hue Auli
 Delhi to Haridwar 4hr
 Haridawr to Auli 8 hr
-![[Pasted image 20231124020043.png]]
+![image](https://github.com/raghavrawat98/trip/assets/49871652/3b7b022f-124d-45ba-8638-2470fbd7b603)
+
 
 I see Days as 6
 Removing Day 1 and 6, speeding
@@ -21,7 +23,8 @@ Can be sustained
 
 [A good YT video](https://www.youtube.com/watch?v=i-x9yEmqWY0)
 
-![[Pasted image 20231124025055.png]]
+![image](https://github.com/raghavrawat98/trip/assets/49871652/c91e789e-9d69-4003-aa99-99276edb5596)
+
 
 [Things to do in Auli pt2](https://indiathrills.com/auli/things-to-do-in-auli/)
 
